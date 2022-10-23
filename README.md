@@ -6,3 +6,4 @@ Keegan Smith: keeganasmith2003@tamu.edu
 Will Heeney: willheeney03@tamu.edu
 Evan Pan: pan.evan@tamu.edu
 Marco Verderame: marcvf38@gmail.com
+Xiaoyan Zhou: zhouxy7@tamu.edu
